@@ -8,4 +8,4 @@ trying his damndest to speak through the
 formaldehyde. Grab a coloring book, put on a 
 mukbang, thighten your man bun while enjoying 
 an irony craft beer in this farm-to-table 
-extravaganza. 
+extravaganza. Enjoy 
