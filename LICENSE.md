@@ -1,6 +1,6 @@
 MIT License
 
-Copyright (c) 2022 Katherine Marie Bonefas
+Copyright (c) 2022 Katherine Marie Bonefas, Shigeki Iwase
 
 Permission is hereby granted, free of charge, to any person obtaining a 
 copy
